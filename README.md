@@ -1,0 +1,2 @@
+# choyxona
+Choyxona dastur
